@@ -50,7 +50,7 @@ Self-conscious individuals are sensitive about what others think of them. Their 
 
 ### Immoderation
 
-Immoderate individuals feel strong cravings and urges that they have have difficulty resisting. They tend to be oriented toward short-term pleasures and rewards rather than long- term consequences. Low scorers do not experience strong, irresistible cravings and consequently do not find themselves tempted to overindulge.
+Immoderate individuals feel strong cravings and urges that they have difficulty resisting. They tend to be oriented toward short-term pleasures and rewards rather than long- term consequences. Low scorers do not experience strong, irresistible cravings and consequently do not find themselves tempted to overindulge.
 
 ### Vulnerability
 
